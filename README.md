@@ -1,0 +1,1 @@
+# itsnaturally-image-bannner-resources
